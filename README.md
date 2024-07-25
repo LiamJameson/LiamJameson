@@ -1,1 +1,1 @@
-Hi I'm @LiamJameson, I'm interested in data analytics. I'm finishing up my degree and buildijng out a portfolio for analytics roles. You can get in touch with me on linkedin here: https://www.linkedin.com/in/liamjameson/.
+Hi I'm @LiamJameson, I'm interested in data analytics. I'm finishing up my degree and building out a portfolio for analytics roles.
